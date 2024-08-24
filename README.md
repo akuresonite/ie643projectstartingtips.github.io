@@ -1,1 +1,0 @@
-# ie643projectstartingtips.github.io
